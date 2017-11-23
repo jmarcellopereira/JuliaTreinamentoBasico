@@ -6,3 +6,13 @@
 
 [4-CALCULO-MATEMATICA-SIMBOLICA-TESTE.ipynb](4-CALCULO-MATEMATICA-SIMBOLICA-TESTE.ipynb)
 
+
+
+### asdfasdf asdfasdf asdf asdfasdfasdfasd asdf asdf asdf asdf asdf 
+
+|  |  |
+| :--- | :--- |
+|  |  |
+
+
+
